@@ -119,6 +119,8 @@ Proton Calendar — товарный знак Proton AG. Страница опи
 
 [https://aivoraprograms.com](https://aivoraprograms.com/) · hello@aivora.app
 
+#windows11 #windows10 #calendar #proton #aivora
+
 ---
 
 *Proton Calendar Plus · encrypted calendar Windows · paid Proton Calendar free through launcher · Aivora Programs · https://aivoraprograms.com/programs/proton-calendar-plus/*
